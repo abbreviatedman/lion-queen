@@ -44,6 +44,12 @@ Slowly each major character is introduced.
 
 The song contrasts the two lands.
 
-Huntressia people sing about how wonderful their land is.
+The songs are in the form of dreams and wishes for each character.
 
-Drylands people sing about how they don't have the abundance of Huntressia, and that makes them special, because they have to strive and work for everything they have.
+Huntressia citizens dream that they or their children will find love and happiness.
+
+Drylands citizens dream of a better life and of the strength to endure.
+
+Eris dreams of power.
+
+Nala and Ceres will also have more childlike dreams.
